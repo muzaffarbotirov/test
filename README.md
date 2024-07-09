@@ -1,0 +1,1 @@
+# Loyiha test maqsadida yaratildi
